@@ -2,7 +2,7 @@
 - 👀 I’m am eager to learn new technologies and expanse my carrier in the field of software development.
 - 🌱 I’m currently learning full-stack web development , cloud computing and cyber security.
 - 💞️ I’m looking to collaborate on dynamic projects and enhance my skills by using cutting-edge technologies.
-- 📫 How to reach me ...
+- 📫 How to reach me enaross386@gmail.com
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: 😊 🎲⚡🌞🔥❄️ 💛
 
